@@ -1,4 +1,4 @@
-# 👋 Olá, eu sou Felipe Kauan Jesus Silva
+# 👋 Olá, me chamo Felipe Kauan Jesus Silva
 
 ## 🚀 Sobre mim
 
